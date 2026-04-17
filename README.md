@@ -1,1 +1,0 @@
-# galiullin-ilzur-arduino
